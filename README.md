@@ -10,3 +10,5 @@ The features of our system are :-
 
 Now after all this the main question is why should people rely on us…..
 We TECH EYES have solved this part too.Though a very basic startup but we have taken consumer satisfaction to a different level,We have proposed to give discounts to all our customers.All the new customers would be welcomed by one of the  main servicing part i.e alignment of wheels and many more….
+
+OUR WEBSITE LINK : https://souvikgiriismyname1.wixsite.com/techeyes
